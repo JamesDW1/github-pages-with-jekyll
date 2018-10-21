@@ -1,3 +1,3 @@
 # Welcome to my blog
 
-I'm glad you are here. I plan to talk about ...
+Anyone viewing this will be cursed with __imminent death__. Beware!
